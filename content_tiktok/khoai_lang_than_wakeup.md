@@ -1,0 +1,9 @@
+Nếu như mỗi ngày thức dậy, mình sẽ có một khung cảnh khác nhau để mà ngắm nhìn. Có ngày thì núi non hùng vĩ, bao la mây trời luôn. Nhưng mà cũng sẽ có ngày, mưa mù giăng kín không thấy gì hết. Nhiều khi sáng giật mình thức dậy thì nguyên cái nhà di động của mình lại nằm bên cạnh một cái con suối chảy xiết mà mới hồi tối hôm qua thôi nó vẫn còn đang chảy róc rách nhẹ nhẹ. Nhưng mà đâu sao đâu, ngày hôm sau mình lại có một khung cảnh khác.
+
+Nguyên một hành trình dài với cái nhà di động, cảm giác cuộc sống rày đây mai đó thì cũng lạ thiệt á. Giống như là những cái cuộc lang thang mà mình đi tìm chính mình vậy đó, tìm một chỗ nào đó để mình đứng lại lâu thật lâu hoặc đôi khi chỉ là lướt qua rồi rời đi trong một khoảnh khắc thôi, nhưng mà kỷ niệm đó sẽ theo mình dài thiệt là dài.
+
+1, 2, 3... hú! Chào mừng mọi người đến với ngôi nhà. Nhà đôi khi không phải là một nơi cố định, miễn sao nơi đó cho mình thấy bình yên, mình cảm thấy mình an toàn và được là chính mình. Rồi mỗi ngày thức dậy mình lại có thiệt nhiều năng lượng để tiếp tục cuộc hành trình.
+
+Khoai cũng không biết trước là hành trình lang thang của mình sẽ kéo dài tới khi nào, nhưng mà có một điều Khoai biết là hành trình đó sẽ có những ngày mưa giông, sẽ có những điều không như ý mình đón mình phía trước. Thì mình ngồi lại một chút chắc không sao đâu ha? Ngồi lại để bản thân mình bình tĩnh hơn, để mình có thêm thời gian để mà nhìn lại những gì mà mình đã đi qua, để mà mình biết mình sẽ đi như thế nào tiếp theo sau cái cơn bão đó.
+
+Và ba con cô bác mình sau màn hình cũng nhớ vậy nha, những lúc mà mệt mỏi mình không đứng nổi nữa thì mình cứ ngồi nghỉ ngơi một chút, quan tâm chính mình hơn một chút. Tại vì mình đâu thể nào đứng vững được nếu mà tinh thần của mình không vững đúng không? Cảm ơn mọi người đã coi tới đây và nhớ giữ sức khỏe tinh thần của mình thiệt tốt nha
