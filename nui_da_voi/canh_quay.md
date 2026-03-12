@@ -1,0 +1,11 @@
+trong video này chủ thể "tôi" là Hảo (nữ), người yêu là Hiếu (nam)
+- đi đường tới núi đá voi, quay cảnh người chăn bò đang dắt bò đi ăn cỏ
+- đỗ xe máy ở bãi giữ xe
+- đi mua vé, được thêm nước
+- đi tham quan khu du lịch, xem đồ của người dân tộc ê đê
+- quay toàn cảnh núi đá voi, một tảng đá màu xám xịt
+- loay hoay tìm chỗ leo lên vách đá dựng đứng, người yêu nắm tay dắt lên
+- nằm trên lưng núi voi, gió thôi rất mạnh. miệng cười tươi, vừa sợ vừa vui
+- nhiều người khác cũng đang bò lên núi vì gió thôi rất mạnh. có người nằm rạp xuống ôm mặt đá vì sợ hãi
+- cảnh tôi ngồi tạo dáng chụp ảnh, cười mỉm
+- người yêu nhờ chụp tấm ảnh nhảy lên trên không trung. anh Hiếu có một bộ sưu tập những ảnh như vậy (show kho ảnh ngớ ngân ra)
